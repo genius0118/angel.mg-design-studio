@@ -1,1 +1,0 @@
-# angel.mg-design-studio
